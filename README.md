@@ -1,2 +1,2 @@
 # speed-math-cs
-njkrjngnjrkgnjenrjkgnj3egjrnqenrjgnqjergnjerqngjqrenjgnjqre
+jjkk
